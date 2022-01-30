@@ -1,0 +1,3 @@
+- 👋 I usually go by Evil.
+- 💞️ Only here to organize R2L concepts in a public setting.
+- 📫 I can be reached on steam @: https://steamcommunity.com/id/loudduckfart/
